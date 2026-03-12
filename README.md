@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @GalFawkes 🏳️‍⚧️ she/her
+- 👋 Hi, I’m @GalFawkes she/her
 - 👀 I’m interested in cybersecurity, poetry, and the intersections of art and technology!
 - 🌱 I’m currently learning to park skate, not procrastinate, and to not give up on problems.
 - 💔 I’m not currently looking to collaborate.
